@@ -1,2 +1,2 @@
 # CV
-Curriculum vitae Clemente Quintana Poz
+Curriculum vitae Clemente Quintana Pozo
